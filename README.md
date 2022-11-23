@@ -4,7 +4,7 @@
 - 🔭 Atualmente em busca de estágio
 - 🌱 Cursando Análise e desenvolvimento de sistemas
 - 📫 Contato: Jadysantos111@gmail.com
-- 😄 Pronomes: Ela/Dela
+
 
 
 
